@@ -1,6 +1,6 @@
 # <a href="https://l24.im/0u2PLh8">BETTURKEY GİRİŞ TIKLA</a>
 
-<a href="https://l24.im/0u2PLh8"><img src="https://i.hizliresim.com/hx9qdn2.jpeg" alt="resim yükle" border="0" /></a>
+<a href="https://l24.im/0u2PLh8"><img src="https://creatorspace.imgix.net/users/cm3hg86sr03n7o201pb19npgl/y8cqMENuyZ2L4Muu-betturkey2.png" alt="resim yükle" border="0" /></a>
 
 # Betturkey Resmi Ve Güncel Giriş Adresi.7/24 Destek İçin Hemen Tıklayınız.
 Betturkey, Türkiye'deki online bahis ve oyun platformlarından biridir. Kullanıcıların güvenli bir şekilde spor bahisleri yapmalarına, casino oyunları oynamalarına ve canlı bahislerde şanslarını denemelerine olanak sağlar. Betturkey’e giriş yaparak, platformda sunulan çeşitli oyun ve bahis seçeneklerine kolayca erişebilirsiniz.
